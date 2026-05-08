@@ -3,7 +3,7 @@
 **Course Code:** TBD  
 **Credits:** 3  
 **Instructor:** Pantouin Adjinsala  
-**Contact:** [your email]  
+**Contact:** pantouinadjinsala@gmail.com  
 **Office Hours:** By appointment  
 
 ---
